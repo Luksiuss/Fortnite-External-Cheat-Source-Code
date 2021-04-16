@@ -1,7 +1,7 @@
 
 Fortnite External Cheat Source Code
 Join My Discord For Help !
-https://discord.gg/q63HT3kDVU
+https://discord.gg/RsHY5H4pHG
 
 
 Credits To Vaselinikives For Making !
